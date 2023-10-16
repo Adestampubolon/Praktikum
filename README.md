@@ -1,1 +1,1 @@
-PRAKTIKUM_PW
+CV
