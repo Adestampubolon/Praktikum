@@ -1,1 +1,1 @@
-CV
+PRAKTIKUM
