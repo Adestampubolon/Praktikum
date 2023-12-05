@@ -1,4 +1,1 @@
-      PRAKTIKUM
-Ades qosasih tampubolon
-   0110223167
-   TI 05
+Ades qosasih tampubolon_0110223167_TI05
